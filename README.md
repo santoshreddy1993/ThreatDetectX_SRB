@@ -49,7 +49,7 @@ This internship aligns perfectly with my goals of becoming a **Threat Detection 
 
 🔗 LinkedIn: [www.linkedin.com/in/santosh-reddy-baisani](https://www.linkedin.com/in/santosh-reddy-baisani)
 
-📧 Email: [santoshreddy1993@gmail.com](mailto:santoshreddy1993@gmail.com)
+📧 Email: [santoshreddy369@gmail.com](mailto:santoshreddy369@gmail.com)
 
 ---
 
